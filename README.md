@@ -1,2 +1,3 @@
-# tra-la-la
-This is just my edit hoho.
+# Enough with the silly titles!
+
+We're not silly now. :) :)
